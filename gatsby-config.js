@@ -2,11 +2,11 @@ module.exports = {
   siteMetadata: {
     title: `UBI and Modernity`,
     author: {
-      name: `UBI Independent`,
-      summary: `A middle aged woman from the UK putting the world to rights`,
+      name: `UBI Independent.`,
+      summary: `A middle aged woman from the UK, putting the world to rights.`,
     },
-    description: `A starter blog demonstrating what Gatsby can do.`,
-    siteUrl: `https://gatsby-starter-blog-demo.netlify.com/`,
+    description: ``,
+    siteUrl: ``,
     social: {
       twitter: `ubi_independent`,
     },
