@@ -1,9 +1,9 @@
 {
-  "name": "gatsby-starter-blog",
+  "name": "independent-for-ubi",
   "private": true,
-  "description": "A starter for a blog powered by Gatsby and Markdown",
+  "description": "Loyalty to UBI, not parties or candidates",
   "version": "0.1.0",
-  "author": "Kyle Mathews <mathews.kyle@gmail.com>",
+  "author": "Ubi Independent <ubi.for.the.uk@gmail.com>",
   "bugs": {
     "url": "https://github.com/gatsbyjs/gatsby/issues"
   },
