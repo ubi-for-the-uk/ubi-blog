@@ -5,8 +5,8 @@ module.exports = {
       name: `UBI Independent.`,
       summary: `A middle aged woman from the UK, putting the world to rights.`,
     },
-    description: ``,
-    siteUrl: ``,
+    description: `UBI and Modernity`,
+    siteUrl: `https://mystifying-pasteur-9f2698.netlify.com/`,
     social: {
       twitter: `ubi_independent`,
     },
