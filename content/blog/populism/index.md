@@ -126,6 +126,6 @@ But let's first dispose of the greulling and useless jobs which only exist due t
 
 Humanity's next task is to dispense with the arduous yet currently necessary jobs as much as we can through automation and innovation. That of course, is a technological struggle, not a political one.
 
-Anyone who fears a human future filled with leisure needs to take a long, hard look in the mirror. To pause and reflect on their priorities. If you have a significant other to embrace, children to play with, friends to talk to, family to visit, a dog to walk, a cat to stroke, sports to play, games to pursue, projects to engage with, books to write or studies to undertake, then should not fear leisure at all.
+Anyone who fears a human future filled with leisure needs to take a long, hard look in the mirror. To pause and reflect on their priorities. If you have a significant other to embrace, children to play with, friends to talk to, family to visit, a dog to walk, a cat to stroke, sports to play, games to pursue, projects to engage with, books to write or studies to undertake, then you should not fear leisure at all.
 
 If work is the only way to save your sanity, then frankly, I pity you.
