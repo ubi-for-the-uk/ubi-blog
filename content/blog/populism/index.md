@@ -1,8 +1,14 @@
+---
+title: The Future Of Populism
+date: "2020-03-02"
+description: "populism"
+---
+
 ## Shout Outs
 
 I would like to begin this post, and the blog as a whole, with a shout-out to my 2000th Twitter follower. A user with the handle [math_hatter](https://twitter.com/math_hatter).
 
-I would also like to thank all the Twitter users who suggested topics for my blog. I went with "The Future Of Populism" for my debut post at the suggestion of [FreeMars2020](https://twitter.com/FreeMars2020), but I added the tagline myself.
+I would also like to thank all the Twitter users who suggested topics for my blog. I went with "The Future Of Populism" for my debut post at the suggestion of [FreeMars2020](https://twitter.com/FreeMars2020).
 
 ## Andrew Yang
 
