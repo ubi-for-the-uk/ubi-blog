@@ -1,9 +1,3 @@
----
-title: The Future Of Populism : A Revolt Againat Job Creation
-date: 2020-03-02
-published: true
----
-
 ## Shout Outs
 
 I would like to begin this post, and the blog as a whole, with a shout-out to my 2000th Twitter follower. A user with the handle [math_hatter](https://twitter.com/math_hatter).
