@@ -1,7 +1,7 @@
 ---
 title: The Future Of Populism : A Revolt Againat Job Creation
-date: '2020-03-01'
-description: 'The Future Of Populism'
+date: "2020-03-01"
+description: "The Future Of Populism : A Revolt Againat Job Creation"
 ---
 
 ## Shout Outs
