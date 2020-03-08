@@ -42,13 +42,13 @@ The same goes for any occupation in the "shortage" list. So please stop using nu
 
 From various stories in the media it appears that employers paying poverty wages in the less desirable job categories such as fruit picking, cleaning, bar work and elderly care are lobbying government to increase the cap on the quota of workers allowed in these "shortage" categories.
 
-As a native Brit, I think its important to point out that mass immigration has been used as a weapon of class warfare against the native working class in the UK from the 1960s onwards.
+Mass immigration has been used as a weapon of class warfare against the British working class from the 1960s onwards.
 
-If we refuse the terms and conditions on offer, then employers hire workers from abroad to drive down market wages. But in 2020, far from trying to sheild British workers from these effects, the Labour Party surrogates praising foreign workers to the skies, while heaping scorn and derision on the native population. Calling us "xenophobes", "racists", and "gammons" or accusing us of being "lazy" for not taking jobs with bad terms and conditions.
+If we refuse poverty pay, then employers hire workers from abroad to drive down market wages. But in 2020, far from trying to sheild low paid British workers from these effects, the Labour Party surrogates prais foreign workers to the skies, while heaping scorn and derision on the native population. Calling us "xenophobes", "racists", and "gammons". Or accusing us of being "lazy" for not accepting the terms and conditions on offer.
 
 > bRiTISH pEOple WonT dO tHESe jOBS
 
-Has become the rallying cry of British middle class Remainers. That battle cry is responsible for the [collapse of Labour's voting base](https://www.theguardian.com/politics/2019/dec/13/labours-red-wall-demolished-by-tory-onslaught).
+Has become the rallying cry of British middle class Remainers. That battle cry is largely responsible for the [collapse of Labour's voting base](https://www.theguardian.com/politics/2019/dec/13/labours-red-wall-demolished-by-tory-onslaught).
 
 ## Zuzanna doesn't want to bathe your bathe your nan for poverty wages, any more than we do
 
