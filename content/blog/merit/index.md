@@ -36,15 +36,15 @@ I am glad that the government is pulling out all the stops to ensure that Britai
 
 ## Foreign nurses are still very welcome
 
-The same goes for any occupation in the "shortage" list. So please stop using nurses to justify open borders.
+The same goes for any occupation in the "shortage" list. So can pundits please stop using nurses to justify open borders?
 
 ## There is no real shortage of cleaners, fruit pickers, bar staff or care workers
 
 From various stories in the media it appears that employers paying poverty wages in the less desirable job categories such as fruit picking, cleaning, bar work and elderly care are lobbying government to increase the cap on the quota of workers allowed in these "shortage" categories.
 
-Mass immigration has been used as a weapon of class warfare against the British working class from the 1960s onwards.
+Mass immigration has been used as a weapon of class warfare against British workers from the 1960s onwards.
 
-If we refuse poverty pay, then employers hire workers from abroad to drive down market wages. But in 2020, far from trying to sheild low paid British workers from these effects, the Labour Party surrogates praise foreign workers to the skies, while heaping scorn and derision on the native population. Calling us "xenophobes", "racists", and "gammons". Or accusing us of being "lazy" for not accepting the terms and conditions on offer.
+If we refuse poverty pay, then employers hire workers from abroad to drive down market wages. But in 2020, far from trying to shield low paid British workers from these effects, Labour Party surrogates praise foreign workers to the skies, while heaping scorn and derision on the native population. Calling us "xenophobes", "racists", and "gammons". Or accusing us of being "lazy" for not accepting the terms and conditions on offer with occupations such as care work or fruit picking.
 
 > bRiTISH pEOple WonT dO tHESe jOBS
 
