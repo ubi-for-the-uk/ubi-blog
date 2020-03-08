@@ -50,7 +50,7 @@ If we refuse poverty pay, then employers hire workers from abroad to drive down 
 
 Has become the rallying cry of British middle class Remainers. That battle cry is largely responsible for the [collapse of Labour's voting base](https://www.theguardian.com/politics/2019/dec/13/labours-red-wall-demolished-by-tory-onslaught).
 
-## Zuzanna doesn't want to bathe your your nan for poverty wages, any more than we do
+## Zuzanna doesn't want to bathe your nan for poverty wages, any more than we do
 
 The only difference is that our hypothetical Polish immigrant knew that she would have to do that for a while as the "price of admission" to the UK. But if you think that her driving ambition is to wash old ladies arses thousands of miles away from her family, then I would humbly submit that you are wrong.
 
