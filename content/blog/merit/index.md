@@ -32,7 +32,7 @@ The old system was two tier and discriminated strongly in favour of EU citizens.
 
 Although I am currently applying for positions in the tech sector, I don't feel that I am in competition with foreigners. In fact, I don't even feel that I am in competition with my fellow Brits most of the time. The employer's minimum requirements are the real obstacle. Not the other applicants.
 
-I am glad that the government is pulling out all the stops to ensure that Britain remains competitive in the global tech.
+I am glad that the government is pulling out all the stops to ensure that Britain remains competitive in global tech.
 
 ## Foreign nurses are still very welcome
 
@@ -44,7 +44,7 @@ From various stories in the media it appears that employers paying poverty wages
 
 Mass immigration has been used as a weapon of class warfare against the British working class from the 1960s onwards.
 
-If we refuse poverty pay, then employers hire workers from abroad to drive down market wages. But in 2020, far from trying to sheild low paid British workers from these effects, the Labour Party surrogates prais foreign workers to the skies, while heaping scorn and derision on the native population. Calling us "xenophobes", "racists", and "gammons". Or accusing us of being "lazy" for not accepting the terms and conditions on offer.
+If we refuse poverty pay, then employers hire workers from abroad to drive down market wages. But in 2020, far from trying to sheild low paid British workers from these effects, the Labour Party surrogates praise foreign workers to the skies, while heaping scorn and derision on the native population. Calling us "xenophobes", "racists", and "gammons". Or accusing us of being "lazy" for not accepting the terms and conditions on offer.
 
 > bRiTISH pEOple WonT dO tHESe jOBS
 
