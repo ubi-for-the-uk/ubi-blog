@@ -19,9 +19,9 @@ A British Constitution should:
 - Institute a Universal Basic Income funded by a Land Value Tax to permanently eliminate poverty, homelessness, and hunger in the UK.
 - Replacement of the House Of Lords with Direct Digital Democracy — the idea that citizens can vote on policies in real-time using new technologies that the other branches of government must legally consider.
 - Create permanent language that assures the government will regularly use resources to protect the country and planet from existential risks, such as asteroids, plagues, climate change, nuclear risk, AI innovation, etc.
-- Add a Balanced Budget Amendment to control runaway deficit.
+- Add a Balanced Budget Clause to prohibit deficit spending.
 - Protect morphological freedom in adults (the right to do anything to your body so long as it doesn’t harm others). In the coming transhumanist age, the goverrnment should not be able to limit what we can do to our bodies, regardless of cultural norm, religious bias, or political orientation.
-- Declare aging and all disease to be eradicated as the national health mission of the United Kingdom.
+- Declare the eradication of aging and disease to be the national health mission of the United Kingdom.
 - Implement ranked choice voting systems and term limits throughout government.
 - Create legal mechanisms to more easily and speedily adjust the Constitution to radically changing times and accelerating technology.
 
