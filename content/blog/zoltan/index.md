@@ -17,7 +17,7 @@ So here is [Zoltan's program for America](https://zoltan2020.com/policies/), ada
 A British Constitution should:
 
 - Institute a Universal Basic Income funded by a Land Value Tax to permanently eliminate poverty, homelessness, and hunger in the UK.
-- Replacement of the House Of Lords with Direct Digital Democracy — the idea that citizens can vote on policies in real-time using new technologies that the other branches of government must legally consider.
+- Replace the House Of Lords with Direct Digital Democracy — the idea that citizens can vote on policies in real-time using new technologies that the other branches of government must legally consider.
 - Create permanent language that assures the government will regularly use resources to protect the country and planet from existential risks, such as asteroids, plagues, climate change, nuclear risk, AI innovation, etc.
 - Add a Balanced Budget Clause to prohibit deficit spending.
 - Protect morphological freedom in adults (the right to do anything to your body so long as it doesn’t harm others). In the coming transhumanist age, the goverrnment should not be able to limit what we can do to our bodies, regardless of cultural norm, religious bias, or political orientation.
