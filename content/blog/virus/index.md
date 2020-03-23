@@ -1,6 +1,6 @@
 ---
 title: Political Distancing
-date: '2020-03-14'
+date: '2020-03-23'
 description: Endorsing Bad Candidates Spreads The Stupidity Virus
 ---
 
