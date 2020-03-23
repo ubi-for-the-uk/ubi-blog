@@ -14,7 +14,6 @@ At this point, it would be weird if I wrote anything that wasn't about the curre
 -   Being a partisan hack for the "left" or "right" party in your nation's politics.
 -   Endorsing the "front runner" of your party, like their victory would have any actual impact on ordinary people's lives.
 -   Saying that you have "Never Kissed A Tory" (if British) or "Vote Blue, No Matter Who" (if American).
--   Substituting real policy advocacy for being a partisan hack.
 -   Going from "UBI" or "End The Wars" to "Vote For Joe Biden".
 -   Lucrative TV punditry.
 -   Book deals.
