@@ -4,12 +4,6 @@ date: "2020-03-02"
 description: "A Revolt Against Job Creation"
 ---
 
-## Shout Outs
-
-I would like to begin this post, and the blog as a whole, with a shout-out to my 2000th Twitter follower. A user with the handle [math_hatter](https://twitter.com/math_hatter).
-
-I would also like to thank all the Twitter users who suggested topics for my blog. I went with "The Future Of Populism" for my debut post at the suggestion of [FreeMars2020](https://twitter.com/FreeMars2020).
-
 ## Andrew Yang
 
 Like so many others, I discovered the 2020 US presidential candidate Andrew Yang after watching his interview with [Joe Rogan](https://www.youtube.com/watch?v=cTsEzmFamZ8). This was months after the video was posted, thanks to a suggestion from the YouTube algorithm.
